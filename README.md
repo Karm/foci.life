@@ -1,2 +1,1 @@
-# foci.life
-foci.life
+Silence is golden. 🦄
